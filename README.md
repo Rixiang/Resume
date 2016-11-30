@@ -2,4 +2,4 @@
 
 This is my personal resume.
 
-Welcome to contacts!
+Welcome to contact me!
